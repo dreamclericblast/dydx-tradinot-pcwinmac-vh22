@@ -1,4 +1,4 @@
-# 
+# مميز dYdX bot التداول وظائف إضافية for Mac OS | VIP dYdX bot التداول وظائف إضافية for PC Windows. Featuring واجهة برمجة التطبيقات للتبادل المركزي and استراتيجية العودة إلى المتوسط — optimized for maximum performance.
 
 
 
